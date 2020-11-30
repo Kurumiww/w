@@ -1,1 +1,1 @@
-#Kurumiw osu skins c:
+# Kurumiw osu skins c:
