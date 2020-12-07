@@ -1,6 +1,6 @@
 # Kurumiw osu skins c:
 
-# [wwwwwwwa](https://i.fiery.me/cs47K.osk)
+# [wwwwwwwa](http://www.mediafire.com/file/6sqlgib9nx9gilx/wwwwwwwa.osk/file)
 ![](https://i.fiery.me/Oa1ip.jpg)
 
 # [wwwwwwwwa](https://i.fiery.me/VlgqZ.osk)
