@@ -12,6 +12,9 @@
 # [wwwwwwwa idk](https://www.mediafire.com/file/f4255x21cl8oxap/wwwwwwwa+idk.osk/file)
 ![](https://osu.ppy.sh/ss/16052698/1b71)
 
+# [CharleLee (EZ NerO)](https://www.mediafire.com/file/omm72n0ig03ee3u/CharleLee+(EZ+NerO)+Gambler.osk/file)
+![](https://osu.ppy.sh/ss/16052746/70ad)
+
 # [Gambler (EZ)](https://www.mediafire.com/file/s3trqlcev6e9akv/Gambler.osk/file)
 ![](https://osu.ppy.sh/ss/16052679/f3da)
 
