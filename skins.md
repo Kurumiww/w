@@ -9,6 +9,9 @@
 # [Gambler (EZ)](https://www.mediafire.com/file/s3trqlcev6e9akv/Gambler.osk/file)
 ![](https://osu.ppy.sh/ss/16052679/f3da)
 
+# [Atmosphere (EZ)](https://drive.google.com/file/d/19-IbIrPlo6KvO-2g5YHitzaAwq3LNZxH/view)
+![](https://skins.osuck.net/uploads/posts/2019-04/1555647233_screenshot3648.jpg)
+
 # [wwwwwwwa](http://www.mediafire.com/file/6sqlgib9nx9gilx/wwwwwwwa.osk/file)
 ![](https://i.fiery.me/Oa1ip.jpg)
 
@@ -21,4 +24,6 @@
 # [wwwwwwwwa](https://i.fiery.me/VlgqZ.osk)
 ![](https://i.fiery.me/aE83K.jpg)
 
+# [wwwwwwwwa old](https://www.mediafire.com/file/q2o6yw9ygherfmz/wwwwwww.osk/file)
+![](https://osu.ppy.sh/ss/16052683/3ca9)
 
