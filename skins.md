@@ -21,8 +21,11 @@
 # [wwwwwwwa](http://www.mediafire.com/file/6sqlgib9nx9gilx/wwwwwwwa.osk/file)
 ![](https://i.fiery.me/Oa1ip.jpg)
 
-# [boop](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
+# [Boop](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
 ![](https://osu.ppy.sh/ss/14733957/6cce)
+
+# [Purple Boop](https://www.mediafire.com/file/198idbqrsm2timo/-+Purple+Boop.osk/file)
+![](https://osu.ppy.sh/ss/16052710/c757)
 
 # [Jace](https://www.mediafire.com/file/52vn8vid6hkei41/Jace.osk/file)
 ![](https://osu.ppy.sh/ss/13484104/3041)
