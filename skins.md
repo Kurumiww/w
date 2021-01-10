@@ -1,7 +1,13 @@
 # Kurumiw osu skins c:
 
+# [wwwwwwwav2](https://www.mediafire.com/file/l0sm8nmwglzw83i/a+kurumi+e+fofa.osk/file)
+![](https://osu.ppy.sh/ss/16052662/a6a7)
+
 # [wwwwwwwa DT](https://www.mediafire.com/file/obnkq2ds09aryv7/wwwwwwwa+Dt.osk/file)
 ![](https://i.fiery.me/VmNdv.jpg)
+
+# [Gambler (EZ)](https://www.mediafire.com/file/s3trqlcev6e9akv/Gambler.osk/file)
+![](https://osu.ppy.sh/ss/16052679/f3da)
 
 # [wwwwwwwa](http://www.mediafire.com/file/6sqlgib9nx9gilx/wwwwwwwa.osk/file)
 ![](https://i.fiery.me/Oa1ip.jpg)
