@@ -12,6 +12,9 @@
 # [wwwwwwwa idk](https://www.mediafire.com/file/f4255x21cl8oxap/wwwwwwwa+idk.osk/file)
 ![](https://osu.ppy.sh/ss/16052698/1b71)
 
+# [Yugen](https://drive.google.com/file/d/1UoyIbbcbl_F5S9Ku2qzCXWYIfN-RdYiN/view)
+![](https://skins.osuck.net/uploads/posts/2018-09/1538054483_screenshot258.jpg)
+
 # [Delis](https://www.mediafire.com/file/bcd8dztm98hgq8k/Delis+edit.osk/file)
 ![](https://osu.ppy.sh/ss/16052766/23cf)
 
