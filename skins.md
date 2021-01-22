@@ -1,7 +1,7 @@
 # Kurumiw osu skins c:
 
-# [wwwwwwwav2](https://www.mediafire.com/file/l0sm8nmwglzw83i/a+kurumi+e+fofa.osk/file)
-![](https://osu.ppy.sh/ss/16052662/a6a7)
+# [wwwwwwwa yugen](https://www.mediafire.com/file/izp2vrw430kd47z/wwwwwwwwa+yugen.osk/file)
+![](https://osu.ppy.sh/ss/16106169/2fc8)
 
 # [wwwwwwwa DT](https://www.mediafire.com/file/obnkq2ds09aryv7/wwwwwwwa+Dt.osk/file)
 ![](https://i.fiery.me/VmNdv.jpg)
@@ -12,8 +12,8 @@
 # [wwwwwwwa idk](https://www.mediafire.com/file/f4255x21cl8oxap/wwwwwwwa+idk.osk/file)
 ![](https://osu.ppy.sh/ss/16052698/1b71)
 
-# [wwwwwwwa yugen](https://www.mediafire.com/file/izp2vrw430kd47z/wwwwwwwwa+yugen.osk/file)
-![](https://osu.ppy.sh/ss/16106169/2fc8)
+# [wwwwwwwav2](https://www.mediafire.com/file/l0sm8nmwglzw83i/a+kurumi+e+fofa.osk/file)
+![](https://osu.ppy.sh/ss/16052662/a6a7)
 
 # [Yugen](https://drive.google.com/file/d/1UoyIbbcbl_F5S9Ku2qzCXWYIfN-RdYiN/view)
 ![](https://skins.osuck.net/uploads/posts/2018-09/1538054483_screenshot258.jpg)
