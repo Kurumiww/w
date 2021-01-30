@@ -12,6 +12,9 @@
 # [wwwwwwwa idk](https://www.mediafire.com/file/f4255x21cl8oxap/wwwwwwwa+idk.osk/file)
 ![](https://osu.ppy.sh/ss/16052698/1b71)
 
+# [pedri](https://www.mediafire.com/file/wrel7paaxecva7w/pedri.osk/file)
+![](https://osu.ppy.sh/ss/16144532/8835)
+
 # [wwwwwwwav2](https://www.mediafire.com/file/l0sm8nmwglzw83i/a+kurumi+e+fofa.osk/file)
 ![](https://osu.ppy.sh/ss/16052662/a6a7)
 
