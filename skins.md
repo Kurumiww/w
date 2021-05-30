@@ -1,5 +1,8 @@
 # Kurumiw osu skins c:
 
+# [Kurumifofa](https://files.catbox.moe/i7rpzm.osk)
+![](https://osu.gatari.pw/ss/7S9RUVSL.jpg)
+
 # [wwwwwwwa yugen](https://www.mediafire.com/file/izp2vrw430kd47z/wwwwwwwwa+yugen.osk/file)
 ![](https://osu.ppy.sh/ss/16106169/2fc8)
 
