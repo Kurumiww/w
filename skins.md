@@ -1,6 +1,6 @@
 # Kurumiw osu skins c:
 
-# [Kurumi rafis](https://files.catbox.moe/4vph27.osk)
+# [Kurumi rafis](https://drive.google.com/file/d/1NDjKAN00hHyM2F_0K8DtugGkl0Vvy1TF/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17156751/c0ef)
 
 # [Kurumi fofa](https://files.catbox.moe/4vph27.osk)
