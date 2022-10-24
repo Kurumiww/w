@@ -1,5 +1,8 @@
 # Kurumiw osu skins c:
 
+# [Kurumi aristia](https://drive.google.com/file/d/1Lh6LhrdkJk2r5x8DFFgDFfRKOJXmwls3/view?usp=sharing)
+![](https://osu.ppy.sh/ss/18210983/9fe8)
+
 # [Kurumi elohere](https://drive.google.com/file/d/1NNa_BD9ko7MRFiFd02GQchbJild1cNX9/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17956797/37a7)
 
