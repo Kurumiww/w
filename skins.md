@@ -1,5 +1,7 @@
 # Kurumiw osu skins c:
 
+# [yugen emilia](https://drive.google.com/file/d/1fGhIaHBgV4zR8Bt7PGflDjZxSR1L-PAc/view)
+![](https://osu.ppy.sh/ss/18531986/d262)
 
 # [Kurumi seoul v11](https://drive.google.com/file/d/1Tcdbdp1TEirrj85Kbe3HTd5Aq2g4uOdA/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18377852/1051)
