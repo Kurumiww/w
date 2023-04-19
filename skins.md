@@ -1,5 +1,8 @@
 # Kurumiw osu skins c:
 
+# [pink rafis kurumiw](https://drive.google.com/file/d/1VC9XPKqBYTmJcxfV2jY0IDbpb1DuSrA8/view?usp=sharing)
+![](https://osu.ppy.sh/ss/18554742/bb4e)
+
 # [yugen emilia](https://drive.google.com/file/d/1fGhIaHBgV4zR8Bt7PGflDjZxSR1L-PAc/view)
 ![](https://osu.ppy.sh/ss/18531986/d262)
 
