@@ -39,7 +39,7 @@
 # [wwwwwwwav2](https://www.mediafire.com/file/l0sm8nmwglzw83i/a+kurumi+e+fofa.osk/file)
 ![](https://osu.ppy.sh/ss/16052662/a6a7)
 
-# [Yugen](https://drive.google.com/file/d/1UoyIbbcbl_F5S9Ku2qzCXWYIfN-RdYiN/view)
+# [Yugen](https://drive.google.com/file/d/1HHciKGAN0uYUDA7Hj711E72ppTu-9LKl/view?usp=sharing)
 ![](https://skins.osuck.net/uploads/posts/2018-09/1538054483_screenshot258.jpg)
 
 # [Delis](https://www.mediafire.com/file/bcd8dztm98hgq8k/Delis+edit.osk/file)
