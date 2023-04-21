@@ -12,6 +12,9 @@
 # [yugen emilia](https://drive.google.com/file/d/1fGhIaHBgV4zR8Bt7PGflDjZxSR1L-PAc/view)
 ![](https://osu.ppy.sh/ss/18531986/d262)
 
+# [tekkito](https://cdn.discordapp.com/attachments/621787307112005642/1098839395638972426/tekkito2.osk)
+![](https://osu.ppy.sh/ss/18556870/8a33)
+
 # [Kurumi seoul v11](https://drive.google.com/file/d/1Tcdbdp1TEirrj85Kbe3HTd5Aq2g4uOdA/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18377852/1051)
 
