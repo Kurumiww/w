@@ -72,9 +72,6 @@
 # [Jace](https://www.mediafire.com/file/52vn8vid6hkei41/Jace.osk/file)
 ![](https://osu.ppy.sh/ss/13484104/3041)
 
-# [wwwwwwwwa](https://i.fiery.me/VlgqZ.osk)
-![](https://i.fiery.me/aE83K.jpg)
-
 # [wwwwwwwwa old](https://www.mediafire.com/file/q2o6yw9ygherfmz/wwwwwww.osk/file)
 ![](https://osu.ppy.sh/ss/16052683/3ca9)
 
