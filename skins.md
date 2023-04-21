@@ -25,10 +25,7 @@
 ![](https://osu.ppy.sh/ss/16106169/2fc8)
 
 # [wwwwwwwa DT](https://www.mediafire.com/file/obnkq2ds09aryv7/wwwwwwwa+Dt.osk/file)
-![](https://i.fiery.me/VmNdv.jpg)
-
-# [wwwwwwwa DT no x100](https://www.mediafire.com/file/rzuzwe7jbrzuv2h/wwwwwwwa+Dt+sem+x100.osk/file)
-![](https://i.fiery.me/VmNdv.jpg)
+![](https://osu.ppy.sh/ss/18556851/4f0f)
 
 # [wwwwwwwa idk](https://www.mediafire.com/file/f4255x21cl8oxap/wwwwwwwa+idk.osk/file)
 ![](https://osu.ppy.sh/ss/16052698/1b71)
