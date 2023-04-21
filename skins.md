@@ -31,7 +31,7 @@
 ![](https://osu.ppy.sh/ss/16052698/1b71)
 
 # [emilia edit](https://www.mediafire.com/file/6th9qt4wef8q93n/random+emilia+skin+edit.osk/file)
-![](...)
+![](https://osu.ppy.sh/ss/18556852/cfd1)
 
 # [pedri](https://www.mediafire.com/file/wrel7paaxecva7w/pedri.osk/file)
 ![](https://osu.ppy.sh/ss/16144532/8835)
