@@ -21,9 +21,6 @@
 # [Kurumi rafis](https://drive.google.com/file/d/1NDjKAN00hHyM2F_0K8DtugGkl0Vvy1TF/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17156751/c0ef)
 
-# [Kurumi fofa](https://files.catbox.moe/4vph27.osk)
-![](https://osu.gatari.pw/ss/7S9RUVSL.jpg)
-
 # [wwwwwwwa yugen](https://www.mediafire.com/file/izp2vrw430kd47z/wwwwwwwwa+yugen.osk/file)
 ![](https://osu.ppy.sh/ss/16106169/2fc8)
 
