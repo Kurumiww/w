@@ -6,6 +6,9 @@
 # [vaxei nova](https://cdn.discordapp.com/attachments/970756987488960512/1098833589367480360/Vaxei_2023s.osk)
 ![](https://osu.ppy.sh/ss/18556850/561c)
 
+# [subahibi tekkito](https://drive.google.com/file/d/1-vauEXzdq6a4bNWEAAnArUe5XwgGV0km/view?usp=sharing)
+![](https://osu.ppy.sh/ss/18688261/ac07)
+
 # [subahibi](https://drive.google.com/file/d/1lrv86BrtejuDkOyPkqKzdzNkgDXMCA9x/view?usp=share_link)
 ![](https://media.discordapp.net/attachments/970756987488960512/1098743998966923264/screenshot381.jpg?width=1202&height=676)
 
