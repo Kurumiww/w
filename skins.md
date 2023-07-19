@@ -9,8 +9,8 @@
 # [subahibi tekkito](https://drive.google.com/file/d/1-vauEXzdq6a4bNWEAAnArUe5XwgGV0km/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18688261/ac07)
 
-# [subahibi](https://drive.google.com/file/d/1lrv86BrtejuDkOyPkqKzdzNkgDXMCA9x/view?usp=share_link)
-![](https://media.discordapp.net/attachments/970756987488960512/1098743998966923264/screenshot381.jpg?width=1202&height=676)
+# [subahibi](https://drive.google.com/file/d/1lrv86BrtejuDkOyPkqKzdzNkgDXMCA9x/view?usp=sharing)
+![](https://osu.ppy.sh/ss/18710713/c1fc)
 
 # [yugen emilia](https://drive.google.com/file/d/1fGhIaHBgV4zR8Bt7PGflDjZxSR1L-PAc/view)
 ![](https://osu.ppy.sh/ss/18531986/d262)
