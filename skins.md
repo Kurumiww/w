@@ -3,6 +3,9 @@
 # [pink rafis kurumiw](https://drive.google.com/file/d/1VC9XPKqBYTmJcxfV2jY0IDbpb1DuSrA8/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18554742/bb4e)
 
+# [another subahibi skin edit](https://drive.google.com/file/d/1AiK3XDXcrDC-jQDnswiG9EoVvTGm-pE6/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/621787307112005642/1133802306836635752/image.png)
+
 # [vaxei nova](https://cdn.discordapp.com/attachments/970756987488960512/1098833589367480360/Vaxei_2023s.osk)
 ![](https://osu.ppy.sh/ss/18556850/561c)
 
