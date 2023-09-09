@@ -3,6 +3,9 @@
 # [rafisss](https://drive.google.com/file/d/1KbXHIqt-ZC--Q0oxrvUwFnEqOEDzS56P/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/998748245746520115/1149913572500045925/3M24o57F.png)
 
+# [subahibi fnidksanf](https://drive.google.com/file/d/1-ykk9hYw85ts8Mn9gLKkay03Q_xRMpkU/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/1000433220959092766/1149915148723699762/uJy6Im3H.png)
+
 # [pink rafis kurumiw](https://drive.google.com/file/d/1VC9XPKqBYTmJcxfV2jY0IDbpb1DuSrA8/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18554742/bb4e)
 
