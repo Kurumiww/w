@@ -1,5 +1,8 @@
 # Kurumiw osu skins c:
 
+# [rafisss](https://drive.google.com/file/d/1KbXHIqt-ZC--Q0oxrvUwFnEqOEDzS56P/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/998748245746520115/1149913572500045925/3M24o57F.png)
+
 # [pink rafis kurumiw](https://drive.google.com/file/d/1VC9XPKqBYTmJcxfV2jY0IDbpb1DuSrA8/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18554742/bb4e)
 
