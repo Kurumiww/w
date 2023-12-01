@@ -1,5 +1,8 @@
 # Kurumiw osu skins c:
 
+# [❁2](https://drive.google.com/file/d/1iLDb4iNoabunaU1wr9sTnK3eWpsvzPyK/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/1000433220959092766/1180222557006332104/image.png?ex=657ca2e9&is=656a2de9&hm=1e94c18c0c091f678522fac4e97c7b44a5863e9441c2fc2ff1dd73dbbc486bbb&)
+
 # [❁](https://drive.google.com/file/d/1ciAm3mdbilaoFP40Pf7DbVX8IPwKffpK/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/1000433220959092766/1173389307529150584/image.png?ex=6563c6f3&is=655151f3&hm=29416112867f7f04b9887433938f37d8fc7467a6a33422f73b9f89ec44e4d63b&)
 
