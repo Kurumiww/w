@@ -79,7 +79,7 @@
 ![](https://osu.ppy.sh/ss/16052740/4317)
 
 # [wwwwwwwa](http://www.mediafire.com/file/6sqlgib9nx9gilx/wwwwwwwa.osk/file)
-![](https://i.fiery.me/Oa1ip.jpg)
+![](https://imgur.com/UeQABOQ.png)
 
 # [Boop](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
 ![](https://osu.ppy.sh/ss/14733957/6cce)
