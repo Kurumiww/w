@@ -66,17 +66,14 @@
 # [Delis](https://www.mediafire.com/file/bcd8dztm98hgq8k/Delis+edit.osk/file)
 ![](https://osu.ppy.sh/ss/16052766/23cf)
 
-# [CharleLee (EZ NerO)](https://www.mediafire.com/file/omm72n0ig03ee3u/CharleLee+(EZ+NerO)+Gambler.osk/file)
+# [CharleLee](https://www.mediafire.com/file/omm72n0ig03ee3u/CharleLee+(EZ+NerO)+Gambler.osk/file)
 ![](https://osu.ppy.sh/ss/16052746/70ad)
 
-# [Gambler (EZ)](https://www.mediafire.com/file/s3trqlcev6e9akv/Gambler.osk/file)
+# [Gambler](https://www.mediafire.com/file/s3trqlcev6e9akv/Gambler.osk/file)
 ![](https://osu.ppy.sh/ss/16052679/f3da)
 
-# [Chroma (EZ)](https://www.mediafire.com/file/nev2uh616qks2yz/Chroma.osk/file)
+# [Chroma](https://www.mediafire.com/file/nev2uh616qks2yz/Chroma.osk/file)
 ![](https://osu.ppy.sh/ss/16052720/ecf5)
-
-# [Atmosphere (EZ)](https://drive.google.com/file/d/19-IbIrPlo6KvO-2g5YHitzaAwq3LNZxH/view)
-![](https://skins.osuck.net/uploads/posts/2019-04/1555647233_screenshot3648.jpg)
 
 # [Andros Varvalian](https://www.mediafire.com/file/qhnsjzs99qeun44/Andros+varv.osk/file)
 ![](https://osu.ppy.sh/ss/16052740/4317)
