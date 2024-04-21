@@ -10,7 +10,7 @@
 ![](https://i.imgur.com/WL7wx2R.png)
 
 # [subahibi fnidksanf](https://drive.google.com/file/d/1-ykk9hYw85ts8Mn9gLKkay03Q_xRMpkU/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/1000433220959092766/1149915148723699762/uJy6Im3H.png)
+![](https://imgur.com/a6CTbYp.png)
 
 # [pink rafis kurumiw](https://drive.google.com/file/d/1VC9XPKqBYTmJcxfV2jY0IDbpb1DuSrA8/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18554742/bb4e)
