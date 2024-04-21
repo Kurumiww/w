@@ -1,13 +1,7 @@
 # Kurumiw osu skins c:
 
-# [idk](https://cdn.discordapp.com/attachments/1000433220959092766/1190553411452669982/-_Kurumi.osk?ex=65a23844&is=658fc344&hm=0f1fb1caabb830e89bc0ff56be1a0e3224dd1b3dd6db3ceaad196e4c9fb9fb39&)
-![](https://cdn.discordapp.com/attachments/1000433220959092766/1190554256894328873/image.png?ex=65a2390e&is=658fc40e&hm=451f8220d17893484c9042a982f382137fe9db1311d6a87c621ccbb68dee9f40&)
-
-# [❁2](https://drive.google.com/file/d/1iLDb4iNoabunaU1wr9sTnK3eWpsvzPyK/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/1000433220959092766/1180222557006332104/image.png?ex=657ca2e9&is=656a2de9&hm=1e94c18c0c091f678522fac4e97c7b44a5863e9441c2fc2ff1dd73dbbc486bbb&)
-
-# [❁](https://drive.google.com/file/d/1ciAm3mdbilaoFP40Pf7DbVX8IPwKffpK/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/1000433220959092766/1173389307529150584/image.png?ex=6563c6f3&is=655151f3&hm=29416112867f7f04b9887433938f37d8fc7467a6a33422f73b9f89ec44e4d63b&)
+# [❁](https://drive.google.com/file/d/1gscc0tohRFq4IOEKSkd7Ps46XCSLiPTy/view?usp=sharing)
+![](https://i.imgur.com/lQVJYtk.png)
 
 # [aaaaaa](https://drive.google.com/file/d/1L4q1t7g8alk3SkSBhchEGXxOXnq1f98p/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/1000433220959092766/1173692484354834463/image.png?ex=6564e14e&is=65526c4e&hm=5a86db0614f22a9e45c6fbd44b695b39d450fb83d701ec10165435b16337869f&)
