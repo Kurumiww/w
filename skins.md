@@ -1,5 +1,8 @@
 # Kurumiw osu skins c:
 
+# [w](https://drive.google.com/file/d/1hL3fYWjI0Fr846MdDdstA5h8zssHE6qG/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/621787307112005642/1279420512757481563/image.png?ex=66d460b4&is=66d30f34&hm=7227d0273da3f59a3e9e6d2b20d5e900706062b297c919647ef1d0dee962e397&)
+
 # [vaxei nomod](https://drive.google.com/file/d/1ztLFvgSmA9OcSu5I4IsecqgfAVYD_8Zg/view?usp=sharing)
 ![](https://i.imgur.com/5Ao0cq4.png)
 
