@@ -1,5 +1,8 @@
 # Kurumiw osu skins c:
 
+# [tsukasa hyeok](https://drive.google.com/file/d/1HXUrP69jmTROGUtvjLxZ5vnrZoM3Vvpc/view?usp=sharing)
+![](https://osu.ppy.sh/ss/19444282/9256)
+
 # [w](https://drive.google.com/file/d/1hL3fYWjI0Fr846MdDdstA5h8zssHE6qG/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/621787307112005642/1279420512757481563/image.png?ex=66d460b4&is=66d30f34&hm=7227d0273da3f59a3e9e6d2b20d5e900706062b297c919647ef1d0dee962e397&)
 
