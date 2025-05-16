@@ -1,5 +1,8 @@
 # Kurumiw osu skins c:
 
+# [azerite edit](https://drive.google.com/file/d/1jmUqLhnY08CHEGggKf4zJ5F0oyfjFSBc/view?usp=sharing)
+![](https://files.catbox.moe/df9wjs.png)
+
 # [tsukasa hyeok](https://drive.google.com/file/d/1HXUrP69jmTROGUtvjLxZ5vnrZoM3Vvpc/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/19444282/9256)
 
